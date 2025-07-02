@@ -1,13 +1,4 @@
-- National Scholarship of Graduate Student, 2024.
-
-- First-prize Scholarship of CUMT, 2024.
-
-- First-prize Scholarship of CUMT, 2023.
-
-- Freshman Scholarship of CUMT, 2022.
-
-- Excellent Graduation Project of Jiangsu Province, 2022.
-
-- First-prize Enterprise Scholarship of CUMT, 2020.
-
-- First-prize Scholarship of CUMT, 2019.
+- National Scholarship, 2023 (1 of 5 recipients in the School).
+- Outstanding Student of Hebei Province, 2022.
+- National Scholarship, 2021.
+- Person of the Year, Yanshan University, 2021 (1 of 3 recipients university-wide).
